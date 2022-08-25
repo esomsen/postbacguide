@@ -2,7 +2,7 @@
 
 ### Who am I, what is this, and why am I writing it?
 
-Hi! My name is Elizabeth and I’m currently graduate student at Emory University in the Population Biology, Ecology, and Evolution program. I graduated from UW-Madison with my BS, worked full-time for half a year, and then was a Fulbright student scholar at Boğaziçi University in Istanbul, Turkey. I think that everyone should consider taking some time “off” before graduate school, so I’m writing this guide. I’ll cover what a postbac can look like, some different types of opportunities available to you, who can benefit from postbacs (everyone!) and how, and then offer my personal experience. 
+Hi! My name is Elizabeth and I’m currently a graduate student at Emory University in the Population Biology, Ecology, and Evolution program. I graduated from UW-Madison with my BS, worked full-time for half a year, and then was a Fulbright student scholar at Boğaziçi University in Istanbul, Turkey. I think that everyone should consider taking some time “off” before graduate school, so I’m writing this guide. I’ll cover what a postbac can look like, some different types of opportunities available to you, who can benefit from postbacs (everyone!) and how, and then offer my personal experience. 
 
 I am a biologist and a US citizen. Most of my own knowledge in this area tracks with my own interests and background. I expect that a lot of what I’m about to say will be transferrable to the STEM research fields broadly, but you might find that this isn’t the case. If possible, always discuss your options with mentors in your desired field. 
 
